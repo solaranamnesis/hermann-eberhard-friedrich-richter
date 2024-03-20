@@ -2,9 +2,9 @@
 
 ## Von Dr. H. E. Richter.
 
-### Leipzig, 1865.
+### Jahrbücher der in- und ausländischen gesammten Medizin.
 
-#### Jahrbücher der in- und ausländischen gesammten Medizin.
+#### Leipzig, 1865.
 
 1\. Charles Darwin, _Über die Entstehung der Arten im Tier- u. Pflanzenreiche durch natürliche Züch- tung, oder Erhaltung der vervollkommneten Rasse im Kampfe ums Dasein_. Nach der 3. engl. Ausgabe aus dem Englischen übersetzt und mit Anmerkungen versehen von H. G. Bronn. 2 _verbesserte und sehr ver- mehrte Auflage_. Mit Darwin's Portrait in Pho- tographie. Stuttgart 1864. Schweitzerbart. 8. 8 n. 551 S.
 
